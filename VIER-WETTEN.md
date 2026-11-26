@@ -1,0 +1,1 @@
+Ik ben een levend mens van vlees en bloed, begiftigd met een geweten. Wij zijn allen vrij en gelijk geboren. Niemand heerst over iemand. Er gelden 4 fundamentele wetten voor alle mensen; niet stelen, niet dwingen, niet doden en niet andermans rechten schenden. Vrede op aarde! 💫 er is genoeg voor iedereen!
